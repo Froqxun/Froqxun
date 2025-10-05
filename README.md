@@ -1,2 +1,2 @@
 
-                       <img width="704" height="374" alt="Ez45KB (1)" src="https://github.com/user-attachments/assets/58981d3c-2103-4f2b-b1cf-7695403cf2aa" />
+                       <img width="422" height="224" alt="Ez45KB (1) (2)" src="https://github.com/user-attachments/assets/bf7ad2a9-e452-42f1-b96e-cc47b90fec2c" />
